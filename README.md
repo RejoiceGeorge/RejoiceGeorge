@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...music, travelling, carrorm board game,..
 - 🌱 I’m currently learning ... DATA SCIENCE WITH PYTHON, MACHINE LEARNING, TABLEAU
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... rejoicegeorge@gmail.com
+- 📫 How to reach me ... rejoicegeorge@gmail.com or +919496225679
 - 😄 Pronouns: ...He/him/his
 - ⚡ Fun fact: ...
 
